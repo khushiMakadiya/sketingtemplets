@@ -1,1 +1,1 @@
-# sketingtemplets
+# Sketingtemplets
