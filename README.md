@@ -1,1 +1,1 @@
-# Sketingtemplet
+GIF/sketing.gif
